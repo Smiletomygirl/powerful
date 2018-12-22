@@ -1,0 +1,2 @@
+# powerful
+its my thinking
